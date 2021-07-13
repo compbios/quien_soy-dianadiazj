@@ -1,4 +1,4 @@
-## DIANA PATRICIA DÍAZ-JIMÉNEZ
+## DIANA PATRICIA DÍAZ JIMÉNEZ
 Administradora en servicios de salud con formación en Economía y Gestión de la Salud. Con conocimiento en:
 * Análisis de datos de salud (mortalidad y morbilidad).
 * Costos hospitalarios.
