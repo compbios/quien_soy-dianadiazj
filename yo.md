@@ -10,11 +10,11 @@ Administradora en servicios de salud con formación en Economía y Gestión de l
 
 ### EDUCACIÓN
 
-* **Postgrado**: Especialización en Economía y Gestión de la Salud, Universidad Jorge Tadeo Lozano, noviembre de 2006.
+* **Postgrado**: Especialización en Economía y Gestión de la Salud, Universidad Jorge Tadeo Lozano.
  
-* **Universitario**: Administración en Salud - Gestión de Servicios de Salud, Universidad de Antioquia, abril de 2005.
+* **Universitario**: Administración en Salud - Gestión de Servicios de Salud, Universidad de Antioquia.
  
-* **Tecnología**: Tecnología en Costos y Auditoría, Politécnico Colombiano Jaime Isaza Cadavid, abril de 2000.
+* **Tecnología**: Tecnología en Costos y Auditoría, Politécnico Colombiano Jaime Isaza Cadavid.
 
 
 
